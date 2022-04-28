@@ -1,5 +1,5 @@
 # PizzaClient-1.13M
-**Cracked Supporter Features Included with Pizza Client Membership** 
+**Cracked Supporter Features Included with Pizza Client Supporter Membership** 
 
 
 **Current Features**                                              
