@@ -1,4 +1,4 @@
-# PizzaClient-Mem-1.13
+# PizzaClient-1.13M
 **Cracked Supporter Features Included with Pizza Client Membership** 
 
 
@@ -26,4 +26,4 @@
 + funny velocity
 
 
-**Will be updated when new features get released so stay tuned**
+**Will be updated with new patches to mod**
